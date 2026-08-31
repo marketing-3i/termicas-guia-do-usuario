@@ -1,0 +1,1 @@
+# termicas-guia-do-usuario
